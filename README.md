@@ -1,6 +1,6 @@
 - 📫 How to reach me **rosihann14@mail.ugm.ac.id**
 
-- 📄 Know about my experiences [-]soon
+- 📄 Know about my experiences -soon
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
